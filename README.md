@@ -1,2 +1,2 @@
 # whiteknight.io
-hammer to fall Kight is coming
+hammer to fall
